@@ -1,6 +1,6 @@
-## Bhutan State Lottery Results Today 💰
+## Bhutan Kanchenjunga Lottery Results Today 💰
 
-Bhutan State Lottery Results - Kanchenjunga Lottery – 11:55 AM Morning, 4:00 PM Day and 8:00 PM Evening / Night Results on [LotterySambad-Today.com](https://lotterysambad-today.com/)
+**Bhutan State Lottery Results** - Kanchenjunga Lottery – 11:55 AM Morning, 4:00 PM Day and 8:00 PM Evening / Night Results on [LotterySambad-Today.com](https://lotterysambad-today.com/)
 
 ## CHECK RESULT 👉👉 [Bhutan State Lottery Result](https://lotterysambad-today.com/bhutan-state-lottery-results-today/)
 ## CHECK RESULT 👉👉 [Bhutan State Lottery Result](https://lotterysambad-today.com/bhutan-state-lottery-results-today/)
